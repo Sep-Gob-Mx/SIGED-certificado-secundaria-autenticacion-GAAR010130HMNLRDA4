@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-GAAR010130HMNLRDA4
+GAAR010130HMNLRDA4
